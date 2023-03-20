@@ -1,3 +1,5 @@
-Hi, Names EnragedBambi! Im here to send source codes for my fnf mods and other bullshit!
-Im a 13 y old teenager who idk
+#Hi, name's RBeansDev/Brujer
 
+Unless you are my friend, i wont work on your retarded ahh mod
+
+![HARAM](https://user-images.githubusercontent.com/117064691/226248978-6e979287-1bca-4225-b096-f11cf3419fc0.gif)
