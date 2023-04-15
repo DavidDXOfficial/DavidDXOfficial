@@ -1,4 +1,4 @@
-## Hi, name's RBeansDev/Brujer
+## Hi, name's InoriDev
 
 Unless you are my friend, i wont work on your retarded ahh mod
 
