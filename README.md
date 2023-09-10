@@ -1,8 +1,8 @@
 ## Hello, name's JustSomeCoderDude!
 
 Just some coder and artist
-\n 14 - he/him - straight
 
+14 - he/him - straight
 Coding in Haxe
 
 Socials:
