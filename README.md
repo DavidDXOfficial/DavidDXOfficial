@@ -1,4 +1,4 @@
-## Hello, name's JustSomeCoderDude!
+## Hello, name's JustSataniaCodingDiarrhea!
 
 Just some coder and artist
 
@@ -8,9 +8,14 @@ Coding in Haxe
 
 Socials:
 
-[https://twitter.com/AmiThe1288](https://twitter.com/AmiThe1288)
+[https://twitter.com/AmiThe1288](https://twitter.com/AmiThe1288) [OUTDATED]
 
 [https://steamcommunity.com/profiles/76561199513135743/](https://steamcommunity.com/profiles/76561199513135743/)
+
+
+[https://twitter.com/JustSataniaCode](https://twitter.com/JustSataniaCode)
+NEW ONE
+
 
 Discord: justs0mecoderdude
 
