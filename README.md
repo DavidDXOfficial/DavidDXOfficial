@@ -1,4 +1,4 @@
-## Hello, name's JustSataniaCodingDiarrhea!
+## Hello, name's SatanichiaDev!
 
 Just some coder and artist
 
@@ -17,7 +17,7 @@ Socials:
 NEW ONE
 
 
-Discord: justs0mecoderdude
+Discord: justsatanichiacode
 
 
 ![Unfair_Bambi_Static (1)](https://github.com/JustSomeCoderDude01/DavidDXOfficial/assets/117064691/e36f1bdb-5b80-4afd-bfa7-95492a1a7813)
