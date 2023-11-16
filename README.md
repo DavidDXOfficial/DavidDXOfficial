@@ -1,6 +1,6 @@
-## Hello, name's JustSomeCoderDude!
+## Hello, name's OfficialJSCD!
 
-Just some artist.
+Just a haxe gamedev and nothing much.
 
 Socials:
 
